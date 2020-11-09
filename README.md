@@ -1,0 +1,1 @@
+This is an easy vanilla pancake recipe that doesn't take much time to make. Plus, the pancakes are delish. 
